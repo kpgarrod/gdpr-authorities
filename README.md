@@ -1,0 +1,1 @@
+# gdpr-supervisory-authorities
